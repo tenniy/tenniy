@@ -21,6 +21,7 @@ $$\color{#fd9934}︶˚̣　fourteen　x　ten　kindly　dni　༒︎$$
       $$\color{#fd9934}i　dont　always　know　if　i　sound　mean　or　if　i　did$$
       $$\color{#fd9934}something　wrong　because　i　am　neurodivergent$$
       $$\color{#fd9934}(　im　specifiying　that　so　people　understand　me　more.　)$$
+      $$\color{#fd9934}　i　pref　if　doubles　dni$$
     </p>
   </details>
 </div>
