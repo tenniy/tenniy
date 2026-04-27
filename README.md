@@ -1,5 +1,5 @@
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=+་∔་།+guitars&color=fd9934" alt="visitor counter">
+  <img src="https://komarev.com/ghpvc/?username=tenniy&label=+་∔་།+guitars&color=fd9934" alt="visitor counter">
 </p>
 
 <p align="center">
@@ -10,6 +10,21 @@
  　 ྀིཀ　　<img width="104" height="59" alt="miii" src="https://github.com/user-attachments/assets/e83dae68-b384-4b49-bf9c-3d0dfc240fdc" />𓎢𓎟𓎡
 </p>
 
+$$\color{#fd9934}︶˚̣　fourteen　x　ten　kindly　dni　༒︎$$
 
+<div align="center">
+  <details>
+    <summary>$$\color{#fd9934}byi$$</summary>
+    <p>
+      $$\color{#fd9934}fourteen　x　ten　dni　like　i　said　❛$$
+      $$\color{#fd9934}im　a　minor　so　dont　be　weird.$$
+      $$\color{#fd9934}i　dont　always　know　if　i　sound　mean　or　if　i　did$$
+      $$\color{#fd9934}something　wrong　because　i　am　neurodivergent$$
+      $$\color{#fd9934}(　im　specifiying　that　so　people　understand　me　more.　)$$
+    </p>
+  </details>
+</div>
 
-  man im dead
+<p align="center">
+𓎢𓎟𓎡
+</p>
