@@ -1,3 +1,7 @@
+  <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=+་∔་།+guitars&color=fd9934" alt="visitor counter">
+</p>
+
 <p align="center">
 𓎢𓎟𓎡
   <img width="104" height="59" alt="tenneh" src="https://github.com/user-attachments/assets/e8970ccb-c4ab-431b-94f9-3178e0233725" />
@@ -5,5 +9,7 @@
   <img width="104" height="59" alt="tenny" src="https://github.com/user-attachments/assets/554613c7-9be1-4ef6-9eb9-0c4f75b81dbd" /> 
  　 ྀིཀ　　<img width="104" height="59" alt="miii" src="https://github.com/user-attachments/assets/e83dae68-b384-4b49-bf9c-3d0dfc240fdc" />𓎢𓎟𓎡
 </p>
-  
+
+
+
   man im dead
